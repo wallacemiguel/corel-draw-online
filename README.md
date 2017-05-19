@@ -18,7 +18,7 @@ Para aqueles que querem economizar e aprender o corel draw, apresento o curso de
 
 # Curso de corel draw online
 
-O curso de corel draw online é um método muito bom para todos que querem poupar tempo e dinheiro, o curso de corel draw online foi feito pelo professor Roberto Gazola que pensou como poderia ajudar a maior quantidade
+O curso de corel draw online <a href="https://escolaparaempreendedores.com.br/">corel draw online</a>é um método muito bom para todos que querem poupar tempo e dinheiro, o curso de corel draw online foi feito pelo professor Roberto Gazola que pensou como poderia ajudar a maior quantidade
 de pessoas possivéis, então criou o curso online de corel draw.
 O curso contem inúmeros video aulas passo a passo pra quem quer aprender corel, com vários anos de experiencia lhe tornou uma referencia no assunto. 
 
